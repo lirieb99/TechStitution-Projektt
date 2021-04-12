@@ -1,0 +1,1 @@
+Ky eshte nje webiste i krijuar me qellim qe ti informojme njerzit sa me shume rreth virusit Korona.
